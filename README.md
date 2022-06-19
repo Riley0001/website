@@ -4,4 +4,4 @@
 I use [netlify.com](https://netlify.com) to host and yes, it's free.
 * **Where did you get your domain?**
 
-I got my domain from [freenom.com](https://freenom.com) and it's completely free. you shoudl also add me on discord Altering#6579
+I got my domain from [freenom.com](https://freenom.com) and it's completely free. you shoudl also add me on discord rileyisfit#2222
